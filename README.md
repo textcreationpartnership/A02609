@@ -35,14 +35,16 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The threefold state of man vpon earth conteyning [brace] the glorie of his Creation, the miserie of 
+
+1. TO THE RIGHT HONOVRABLE SIR OLIVER SAINT-IOHN Knight, Lord Deputie of IRELAND.
+
 #####Body#####
+THE GLORY OF MANS CREATION.GEN. 1. VER. 26.Furthermore God ſaid, Let Vs make man in our owne Image, 
+    _ THE GLORY OF MANS CREATION.
 
-1. THE GLORY OF MANS CREATION.
+    _ THE MISERY OF MANS FALL.
 
-1. THE MISERY OF MANS FALL.
-
-1. THE SWEET MYSTErie of mans Reparation.
+    _ THE SWEET MYSTErie of mans Reparation.
 
 **Types of content**
 
